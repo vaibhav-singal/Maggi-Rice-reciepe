@@ -1,0 +1,1 @@
+We wil require 1 chopped onion , 1 tomato pury , and half glass of rice , two table spoon ghee , 0.25 teaspoon cumin seeds , 0.5 tsp salt , 1 pouch maggi masala , 1 glass of water 
